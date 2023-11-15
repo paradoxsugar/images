@@ -1,1 +1,1 @@
-# images for my Personal Blog
+# images for my Personal Blog www.ljcgo.com
